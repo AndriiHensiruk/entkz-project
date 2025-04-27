@@ -1,1 +1,2 @@
 # entkz-project
+![Image alt](https://github.com/AndriiHensiruk/entkz-project/blob/master/DALL%C2%B7E%202025-04-18%2019.29.31%20-%20Modern%20and%20clean%20website%20design%20for%20an%20educational%20platform%20named%20ENT.KZ%2C%20inspired%20by%20Skyeng%2C%20Khan%20Academy%2C%20and%20UStudy.%20The%20layout%20features%20a%20header%20w.jpg)
